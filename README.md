@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hello, im Joanna i just finish my master in Analytics and Big Data.
+im trying to learn about the field taking a course in Cisco.
+and also i love to learnd new things and exploring so this master was really fun to make!! let's learn together more <3
